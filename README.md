@@ -8,8 +8,6 @@ Wario's VA: Garlicker
 
 
 
-Be in mind this mod was in production before Golbe's, 
-but it is part of his mod too.
 Our dub is the native quality one, based on N64 to the Wii era. 
 Our dub is also based on 'The Super Mario Bros. Super Show!',
 hence some of the catchphrases coming from the Brazilian dub of said show.
